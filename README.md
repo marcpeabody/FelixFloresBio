@@ -7,4 +7,4 @@ My Bio
 ======
 
 Felix is software developer who likes to dabble in art, snowboarding 
-and often times finds himself in very unusual situations.
+and often times finds himself the little spoon.
